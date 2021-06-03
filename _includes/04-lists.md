@@ -1,1 +1,2 @@
-Replace this with a list of your favorite things.
+1. I like to take pictures📷.
+2. I like to play video games🎮
